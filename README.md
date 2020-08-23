@@ -1,6 +1,4 @@
 # Indian
-
-# Pakistan
 Watch The Tutorial
 
 Video Link
