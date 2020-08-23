@@ -3,7 +3,7 @@ Watch The Tutorial
 
 Video Link
 
-Coming Soon....
+https://youtu.be/YX56KvozIow
 
 Use These Awessome Commands and Enjoy..
 
